@@ -12,6 +12,10 @@ Xem Phim Cửu Long Thành Trại: Vây Thành [Twilight of the Warriors: Walled
 
 ============================
 
+Cửu Long Thành Trại: Vây Thành T18 124 Phút 14/06/2024 9.2(435 votes) Quốc gia: Hồng Kông Nhà sản xuất: Đang cập nhật Thể loại: Hành Động Đạo diễn: Trịnh Bảo Thụy Diễn viên: Nhậm Hiền Tề Hồng Kim Bảo Lâm Phong Cổ Thiên Lạc Quách Phú Thành
+
+Nội Dung Phim Cửu Long Thành Trại là khu vực phức tạp có rất nhiều băng đảng xã hội đen. Khi Lạc Quân nhập cảnh trái phép vào Hồng Kông, anh được Quyền Phong giúp đỡ để tồn tại ở nơi này. Trong lúc gặp nạn, họ vô tình phát hiện ra quy luật ngầm giữa sự hỗn loạn. Đứng trước những thế lực tội ác, họ đứng lên chống lại âm mưu đen tối của kẻ thù để giữ lời thề bảo vệ sự bình yên. Cửu Long Thành Trại: Vây Thành quy tụ dàn sao hùng hậu như Cổ Thiên Lạc, Hồng Kim Bảo, Nhậm Hiền Tề, Quách Phú Thành, Lâm Phong, Lưu Tuấn Khiêm, Huỳnh Đức Bân, Ngũ Doãn Long, Hồ Tử Đồng, Trương Văn Kiệt...
+
 Để có những giây phút xem những bộ phim hay, hot nhất hiện nay thì không thể không ghé qua các website xem phim Cửu Long Thành Trại: Vây Thành mà chất lượng Full HD miễn phí này.
 
 Làm sao để xem phim Cửu Long Thành Trại: Vây Thành mà chất lượng Full HD miễn phí?
